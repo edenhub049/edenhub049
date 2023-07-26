@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @edenhub049
 - 👀 I’m interested in photography
-- 🌱 I’m currently learning how to make a good and a professional pictures
+- 🌱 I’m currently learning how to make good and professional pictures
   
 
 <!---
